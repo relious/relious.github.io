@@ -1,1 +1,1 @@
-# relious.github.io
+# just relious
